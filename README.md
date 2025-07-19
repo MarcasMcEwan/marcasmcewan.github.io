@@ -1,5 +1,5 @@
 # Sustainable Sections.ca
 ## Mission
-## Projects
-## Contact
+## Create
+## Connect
 
