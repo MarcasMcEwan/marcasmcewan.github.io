@@ -1,2 +1,1 @@
-# marcasmcewan.github.io
-Sustainable Sections Website
+# Sustainable Sections.ca
